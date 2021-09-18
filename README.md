@@ -1,1 +1,0 @@
-This all-in-one pack includes Windows 8.1, Windows 10, and Windows 11 product key activators. Please open the files with administrator privilages. If the file(s) aren't working, please redownload them.
